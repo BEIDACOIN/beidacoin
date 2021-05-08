@@ -1,4 +1,4 @@
-### Hi there 👋
+### The digital currency for BeiDa. We donate this currency to the place that set our future. As a muli-galaxy species, we aim for the North Star! 👋
 
 <!--
 **BEIDACOIN/beidacoin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
